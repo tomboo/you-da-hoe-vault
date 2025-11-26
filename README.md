@@ -4,7 +4,7 @@ Obsidian vault for the **you-da-hoe** novel project.
 
 ## Structure
 
-- **Library/scenes/** - Read-only archive from depot (225 converted scenes)
+- **Library/scenes/** - Read-only archive from depot (566 unique scenes)
 - **Manuscript/scenes/** - Active work, editing and new scenes
 - **Research/** - World-building, character notes, reference material
 - **Planning/** - Outlines, templates, session notes
@@ -29,6 +29,6 @@ This vault uses automatic commits to preserve work:
 
 ---
 
-**Created:** 2025-11-26  
-**Project:** you-da-hoe  
-**depot Records:** 225 converted scenes
+**Created:** 2025-11-26
+**Project:** you-da-hoe
+**depot Records:** 566 scenes (from 682 depot files, 116 duplicate filenames)

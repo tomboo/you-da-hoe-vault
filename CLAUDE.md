@@ -6,7 +6,7 @@ This is an Obsidian vault for the novel "you-da-hoe".
 
 ## Vault Structure
 
-- **Library/scenes/** - Read-only archive from depot (225 scenes from firebase-depot)
+- **Library/scenes/** - Read-only archive from depot (566 unique scenes from firebase-depot)
 - **Manuscript/scenes/** - Active work, editing and new scenes
 - **Research/** - World-building, character notes, reference material
 - **Planning/** - Outlines, templates, session notes
@@ -18,7 +18,7 @@ This is an Obsidian vault for the novel "you-da-hoe".
 **Novel:** you-da-hoe
 **Genre:** [To be documented]
 **Status:** Prototype phase - setting up vault workflow
-**depot Project:** `you-da-hoe` (225 converted scenes)
+**depot Project:** `you-da-hoe` (566 scenes exported from 682 depot records)
 
 **Key Characters:**
 - [To be documented after reviewing Library content]
