@@ -1,0 +1,100 @@
+---
+uid: 01KAGWBSKM9R8TV2GNDX41M6ND
+project: you-da-hoe
+source_file: 11-5-2013 Margarets Bad Day.docx
+converted_date: '2025-11-24T12:22:17.209828'
+wordcount: 2211
+version: 1
+---
+
+11/5/2013
+
+No Title
+
+MARGARET'S BAD DAY
+
+One of those days. Lydia was sitting at the kitchen table while Margaret leaned nonchalantly against the counter with her arms folded trying to keep her face neutral as the spoiled brat slowly ate three slices of apple and a monkey\'s nibble of cheese. Margaret had caught her dumping her breakfast in in the trash when she thought Margaret wasn\'t looking. She wanted to say to the girl, \"What? So you think I was born yesterday?\" and give her a shake, but the treatment program had rules about touching any of the participants. She\'d be hauled on her ass out her shitty part-time non-benefits paying job in a flash if Dr. Hazy got wind of it.
+
+Instead, Margaret concentrated on watching the girl chew. Lydia was skinny to the point of skeletonism \-- an anorexic, her chart said, plus a bulimic which Margaret was well aware of because Margaret has the pleasure of cleaning the girls\' toilet and someone was spewing vomit on the wall and the floor pretty regularly. The way Lydia was glaring at the cheese morsel in her hand, Margaret expected the girl to hurl the offending bite as soon as she turned her back.
+
+\"You need protein,\" she said conversationally. \"Builds your bones and your teeth.\"
+
+Lydia bared her orthodontia-perfect whites and sniffed, \"I\'m not hungry.\"
+
+Gretchen the dietician had cut up and weighed every bite on Lydia\'s plate and written down every calorie they were trying to stuff into her so she wouldn\'t starve.
+
+\"You don\'t want to on lock down do you? Eat now and I won\'t say anything. Seriously, I don\'t want to get you into trouble.\"
+
+Actually, Margaret didn\'t want to get herself in trouble. She was already in hot water for mouthing off to the cook, \"the registered dietician,\" as Gretchen Beener was always telling her because Gretchen and Margaret had gone to high school together and Gretchen knew Margaret had gotten pregnant in senior year and had to drop out. A sore subject still after more than 30 years. You\'d think the statute of limitations on shame would run out wouldn\'t you. If life were fair, she supposed.
+
+\"One more slice,\" Margaret nodded at the last bite of pie. \"And you can go catch the school shuttle.\"
+
+The girl grabbed a giant Prada bag that probably cost as much as Margaret made in a month and shoved the apple into her mouth chewing as she huffed out of the kitchen and slammed the door.
+
+\"And good bye to you, too,\" Margaret said.
+
+Outside the clank and rattle of garbage cans sounded over the hum of the departing van. Kids who had passes to attend Northern Idaho Community College were on board; the rest were meeting with their therapists over in some group therapy in the living room. The therapists called it Group but the kids always on the look-out for name-calling, called it Grope. She liked their nickname for stick-up-her butt Gretchen. Grinchen. They had a point. The woman couldn\'t cook her way out of a paper bag and she was mean to boot. How could you burn oatmeal and serve it with a straight face? That was what Lydia the picky eater was dumping in the trash and really, how could you blame her? Margaret wouldn\'t eat Gretchen\'s cooking if they paid her and they certainly didn\'t.
+
+She Rusty Harrow\'s slope-shouldered simian form with a garbage can strapped to his back. The lid was askew and he left a trail of grapefruit rinds and coffee grounds behind him like all his years as a garbage man made him spew the stuff from his pores.
+
+Margaret had a vision of Rusty way back in grade school, which his dirty hands and a snot blubbery face. He sat behind her in second \-- no third grade \-- at Kootenai Grade School and she can smell him like a wet dog. Something was off with his old man who ran the town dump. The Harrows had lived at the dump for as long as Margaret could remember, probably longer, she mused. She couldn\'t remember Rusty having a mom. Only the old man who had given Russ his dark simian looks and every day, a cascade of green and purple bruises on his arms and face. One time she remembered he came to school with a split lip and the teacher sent him to the Nurse. Margaret was his hall buddy \-- they had some cockamamie idea that that kids should go 2 x 2 to do errands and Margaret got stuck with Rusty that day. The nurse made her sit out in the anteroom to the nurse\'s office but the door was open and she heard the nurse\'s intake of breath when she made him take off his shirt and she saw the marks on his back. Had they called CPS? She remembered vaguely Rusty being gone from school for a while but the next year he was back to his smelly seat at the back of the class room where he tripped the girls on their way to the sink.
+
+If Old Man Barrow pulled that shit today, they\'d have his kid taken away and thrown in foster care. She wasn\'t sure which was better for a guy who was off in the head like Rusty, still leering at girls and grunting when they came too close.
+
+At this moment, Rusty was stopped at a window of the girl\'s wing. Not doing anything except holding an empty garbage bin and staring. Margaret felt a flutter of \_\_\_\_. What was he looking at so intently? It was just one of the bedrooms, the one closest to the dining room and the back door that ws always kept locked \-- mostly to keep the kids in but Margaret supposed the lock could keep bad things out. Not something anybody worked about way out here ten miles from town and a world away.
+
+[M\'s Encounter with Hazey]{.underline}
+
+From her vantage point at the kitchen sink \-- she was washing pots and pans while Gretchen supposedly did her meal planning at the table. Does she research ways to fuck up tomato soup, like say curdle the milk and pour an industrial size can of pureed tomatoes directly into the \_\_\_\_ milk with no seasoning, no fat, and no flavor? Margaret watched Hazy in his brand new SUV challenge Rusty Barrow\'s old pig truck with the home-made 2x4s doing a shitty job of holding the garbage in for road space. Hazey won the battle. He slid past the old truck with inches to spare while Rusty idled the engine in the only wide spot in the pitted lane. Hazey drove like a maniac at the times and today he put on the gas and used the ice to fishtail the SUV into the space next to the entrance that had his name \-- Reginald Arthur Hazey, MS and Ph.D. on a placard like an \_\_\_\_. The therapist of the month was supposed to have the next closest spot to Hazey but apparently the bloom was off that rose because Hazey parked squarely in the middle of both spots whether on purpose or because the fishtail maneuver didn\'t go quite as planned. Margaret can\'t say.
+
+What she could say though, was that Hazey was pretty stoned at 9 a.m. in the morning. He was moving at a dreamy pace up the walk. He was surveying his kingdom with a loopy smirk \-- \"Yertle the Turtle, king of all he can see,\" Margaret remembers from reading Dr. Seuss to her kids. He hadn\'t shaved or combed his hair either, the long graying strips stuck up in the breeze as if he\'d rolled out of bed and put on his suit I the dark. Here was something new. One brown shoe and one black shoe. Now that was a first. Definitely on something. No wonder the idiot was smiling.
+
+Circle back to reflection on Lydia.
+
+Margaret liked kids. This one, though, was a handful. Every day a new outfit: new shoes, new clothes, some with the tags still on them in her closet, carefully hiding a bag of Snickers bars and Oreo cookies. For a kid who wasn\'t hungry, Lydia had enough sweets to turn Healing House into a diabetic coma. Where she put all that crap in her 5-foot elf-like frame was anybody\'s guess. Still Margaret felt sorry for her. All the money in the world, apparently, but not a single letter from home. In a place where kids lived for mail call, you might as well admit you were being raised by wolves.
+
+Altercation with Hazey
+
+Later in the day, Hazey came out of his wood-paneled office and said, \"Margaret. Come in here.\"
+
+Gretchen gave Margaret her Grinchy smile and Margaret\'s heart sank. Had the witch ratted on her for saying she was trying to poison the kids with her food?
+
+Hazey had already seated himself behind his gleaming walnut desk. Not a paper on it. An expensive Mont Blanc pen.
+
+\"Gretchen said you questioned her authority in front of the residents.\" Hazey always talked like that. But words. Big mouthfuls of syllables when in fact what she had said to Gretchen B\_\_\_\_ the Bitch was, \"Are you trying to poison them? This oatmeal tastes like shit.\"
+
+Hazey was tapping the Mont Blanc on his ear and the look in his eyes was like his name \-- hazy and unfocused.
+
+\"The oatmeal was burned,\" Margaret said carefully. \"The kids were complaining that it tasted foul.\"
+
+\"They\'re always complaining,\" he said. \"They\'re kids.\"
+
+Well Hazey had that right. Even knowing the 25 kids in the program had psychiatric troubles, they were still at heart kids. Quick to whine and complain. Quick to point out the disappointing behavior of adults. Like her kids in their teen years, just more fucked up.
+
+\"I\'m a really good cook,\" Margaret said. Maybe I could take over breakfast for her. She\'s always complaining she doesn\'t have enough time for meal planning.\" Really, she was always complaining that she needed a cigarette which would maybe account for the fact that every taste bud on her tong had died an early death.
+
+Hazey seemed to have lost his train of thought. He was frowning at a file in his lap as if he\'d forgotten how to read.
+
+\"Dr. Hazey. Is everything OK?\"
+
+He pulled out a glossy color brochure with a picture of blue ocean and palm trees. \"I need a vacation. The stress is killing me.\"
+
+He didn\'t look stressed, sitting back in his chair now and propping his shoes on the desk, head back and holding the vacation brochure in front of his eyes like the Holy Grail.
+
+Margaret can\'t take her eyes off the shoes that are right in her field of vision. one is a black wingtip with a shiny, flesh-colored sole and only a few scuffs on its new, slick surface. The other is also a wingtip. Brown and equally new.
+
+\"Hmm. Dr. Hazey, did you know your shoes don\'t match?\"
+
+He moves the palm trees over a fraction of an inch and looks at the hsoes resting like two large boats on the lake of the desk. \"Jesus Christ,\" he says slowly. \"I can\'t meet Lydia Hunt\'s parents in these.\"
+
+Before she knows it, Margaret has the keys to Hazey\'s SUV \-- she\'s amazed to drive a car with only 1900 miles on the odometer \-- and be tooling along Highway 90 out to Hazey\'s McMansion on the west shore of Lake Pend Oreille. She has to tramp from room to room (lake views and granite counters and over-stuffed couches she\'d like to take a nap in) before she locates the master suite with a giant whirlpool bath and two giant walk-in closets that are bigger than her double-wide living room.
+
+The wingtips are side by side in mahogany cubby holes. Anybody could make the same mistake she thinks except there\'s a chandelier-type light fixture in the ceiling big enough to light up a town. Who knows what goes on in Hazey\'s MS and Psychiatry stuffed brain with \_\_\_\_ the polysyllabic words and not a lick of common sense. She puts the black mate to the one on Hazey\'s size 13 double EE feet in her purse.
+
+She\'s about to leave by the side door that leads to the garage when she hears the clanging of garbage bins. Rusty Barrow has his back to her and he seems to be picking through Hazey\'s garbage rather than emptying it in the big truck he\'s parked directly behind the SUV.
+
+Something keeps her silent while Barrow roots deep in the bin and stuffing pill bottles into a plastic bag. The bag is one of those two-liter zip locks, the kind Margaret uses to freeze raspberries at the U-Pick Farm a few miles down from the Barrow Dump.
+
+She melts back in the kitchen where Rusty can\'t see her. There must be 200 pill bottles in his bag. is Hazey sick?
+
+She has to wait for Rusty to move the garbage truck anyway so she works her way back to the bathroom attached to the master suite. In the medicine cabinet, \[note from typist: this ends mid-sentence\]

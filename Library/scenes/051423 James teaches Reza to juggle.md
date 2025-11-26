@@ -1,0 +1,122 @@
+---
+uid: 01KAGW3W64G041M10K8F2WG7DY
+project: you-da-hoe
+source_file: 051423 James teaches Reza to juggle.docx
+converted_date: '2025-11-24T12:24:21.757264'
+wordcount: 1680
+version: 1
+---
+
+051423 James teaches Reza to juggle
+
+JAMES BAGGED POTATOES AT THE SORTING TABLE in the Coeur D' Alene Food Pantry for his community service hours. It was a mindless task. Mindless suited him just fine. All the excitement of the fire and staying up till 3AM, then being so wound up with adrenalin after his close proximity to Rachel under the blanket, made it impossible to get any sleep last night.
+
+All morning, his eyeballs felt as gravelly as the dirt encrusted Idaho potatoes he was shoveling like an automaton into net bags. Spuds, that's what people in Idaho called them. He was way more efficient than Reza who fucked off next to him, using a one-potato-two-potato method while James used his whole arm to roll the lumps to the lip of the table so they'd land in the bag with one shove. They had about a ton of potatoes to bag before noon when the poor people were allowed into the Pantry to fill their bags.
+
+Thank God they\'d brought in a new guy to fill out the shift or they would have been bagging potatoes for days. James prided himself on working fast, but this guy was a bagging machine. He'd consistently filled two bags to James's one and barely broken a sweat.
+
+At the 10 o'clock break, he said 'hey' to the guy while he was drinking a Coke. His name was Lorenzo. He was freckle faced and so built, he could have made it onto the NICC football team as a walk on. A cap of red curly hair stuck out all around his head under a baseball cap embroidered with the letters LDS.
+
+\"What\'s that stand for?\" James nodded at the cap. .
+
+\"Church of the Latter Day Saints,\" Lorenzo said.
+
+\"You a Mormon?\"
+
+"Used to be." Lorenzo sucked at a Coke he'd drawn from his backpack. "It's an old hat."
+
+\"Breakfast of champions," James raised his own Coke in salute. "Should have known you weren't Mormon. Isn't caffeine against the rules?\"
+
+Lorenzo shrugged. \"I don\'t think I\'m going to hell for it. Are you?\"
+
+You can't go to hell if you're already there, James wanted to say but Reza, who was perched on the spud table trying to juggle a potato, lobbed a big spud at James head like a missile.
+
+James ducked the spud easily. "Jeez, Reza, could you put some of that energy into bagging?"
+
+Another of Reza\'s potatoes careened out of a wobbly arc and rolled off the sorting table onto the floor on Lorenzo's side. The big dude went under the table to retrieve it and came up with two more runaways. Lorenzo stood and tossed all four of the potatoes in the air and he kept all of them flying effortlessly in an easy rhythm. You gotta start with ones that are the same size when you\'re learning, he told Reza.
+
+Without missing a beat, he grabbed a much bigger potato and added it to the three potatoes already spinning at even intervals over his head. The trick was to counter-weight the heaviest, lop-sided potato against three of the same size and pretty soon, Reza was trying out his method with two evenly weighted potatoes, then, three potatoes, and when he was starting to get it, James gave Lorenzo's method a try. James, always good with his hands, was surprised to see that Lorenzo\'s teaching was pretty good.
+
+Mr. McGregor, the volunteer supervisor, rolled in from the cold room with a wheel barrel full of parsnips at the moment James, Lorenzo and Reza all had multiple spuds flying over the heads in unison. McGregor, a balding ex-priest, laughed. He shook his head good-naturedly, but told them to get in gear before the Food Pantry opened its doors to the clients. "Hungry people don't like to wait."
+
+After that, James and Lorenzo buckled down, and even Reza picked up his pace, and by the noon buzzer, at the end of their shift, they'd finished the mountain of potatoes and made a dent in the parsnips.
+
+"Bet you don't know the difference between parsnips and a girl?\" Reza said to Lorenzo in the back room when they were putting away their aprons in the lockers for lunch.
+
+\"I\'ll bite\" Lorenzo said.
+
+\"A girl gets eaten. Parsnips don't."
+
+James rolled his eyes. Stupid Reza.
+
+Lorenzo looked blank. \"I don\'t get it.\"
+
+Lorenzo turned in appeal to James who had been fantasizing all morning about the feel of Rachel pressed next to him under the blanket, as if he expected James to explain.
+
+"Introduce him to Lydia, and he can learn it the easy way!" Reza said.
+
+\"Are you talking about Lydia Bronfmann?" Lorenzo said.
+
+The open and friendly gaze that Lorenzo had worn all morning was replaced by a cold frown. James had a sudden memory of a family ski trip to Salt Lake City when Dad drove by the angel Moroni in front of the Mormon Tabernacle and said the naked angel was freezing his ass off.
+
+James was about to tell Lorenzo to forget it, it was just Reza horsing around in his idiot-brain way but he stopped when he saw real anger on Lorenzo's face. This guy *liked* Lydia? *Lydia Bronfmann* was someone worth having her honor defended?
+
+Knowing Lydia in the Biblical sense didn't make James the best champion of her honor and neither did knowing her behavior when she didn't get her way. But in one of those rare times in his life when James found himself close to a precipice, he had the good sense to back away. Which is why he surprised himself by taking the heat off Reza by commenting, "Parsnips taste OK to me. They're better than turnips."
+
+In a miracle of good timing, Margaret honked the horn outside in the parking lot to let them know the van was here to pick them up. "Sorry, that's our ride." James gestured vaguely toward the steady honking as if he would have liked to hang out and explain.
+
+Lorenzo raised a hand the size of a ham. \"See you next time."
+
+\"Sure. I'll say hey to Lydia for you."
+
+"Appreciate it."
+
+When Reza piled in the van after him and slammed the door, James said, "Reza! Use some judgment! You're lucky you didn't get pounded into a greasy spot!"
+
+Reza, busy pulling out three potatoes he\'d stuffed in his pocket, said, \"Pretty cool juggling tips, weren\'t they?\"
+
+James let out a groan. What would it be like to go around every day of your life like Reza, completely immune to the feelings of the people around you?
+
+The juggling lesson had been like watching a marigold bloom. Reza's saffron-brown skin glowed. His liquid brown eyes shone with the intense light of concentration. All his usually nervous movements were concentrated on the task of juggling. Reza, for once, didn't seem annoying. He seemed hard working. Invested in learning and acquiring a skill.
+
+James had cheered him on, saying, "You're getting it."
+
+When Reza kept two potatoes aloft for a long minute, James even applauded. Caught up by Reza's joy in his own accomplishment.
+
+Lorenza, so solid and stolid of body, was a good teacher. Clear. Patient. He pointed out when Reza had a good toss. He broke down the steps of juggling---the toss, the loft and the release---with precision. James could see how Reza leaned into the older boy's assurance and skill and encouragement. When Lorenzo praised Reza, he flushed with shy pride. James had a momentary flash of his father walking along next to him on his first bike ride, steadying him with his big hand, then steadying him with his big voice as he pedaled away on his own. "You're getting it, you're getting it," he heard his dad saying and was surprised to hear the same words come out of his mouth to Reza.
+
+James already knew how to juggle. He wasn't great, but he could keep three balls in the air if he worked on it. He thought he might be able to master four with practice.
+
+"I didn't know you could juggle," Reza said in the van.
+
+"It didn't come up."
+
+"I've been trying to learn for months. So how come it came up with Lorenzo and we don't even know that guy?"  James was hard pressed for an answer. He hadn't thought about what Reza wanted. It hadn't occurred to him to pass along his knowledge. It wasn't a priority. And yet.
+
+Reza had been so thrilled. Flushed and blooming like a small brownish-yellow flower in the sun ofLorenzo's regard. He felt a little crappy. Why hadn't he taught Reza the rudiments of juggling when he saw him struggling? Reza had dropped spuds all over him week after week.
+
+Selfish.
+
+The word flitted into his consciousness and shocked him with its truth.
+
+"Don't juggle those in here here or I'll pound you into a greasy spot myself."
+
+Reza juggled anyway and James surprised himself again by ignoring him until the end of the day, when they went to the locker room together..
+
+"Still bummed about not having a girlfriend?" James asked.
+
+Reza was picking at a scab on his knee. "My family believes in arranged marriage." He spoke in a high, sing-song Indian accent. "Rezaya, there'll be no dateeng until after marriage!"
+
+"I thought that was illegal."
+
+Reza laughed. "No one makes you do it. You just do it to yourself because your parents had it done to them."
+
+"You can say no."
+
+A snort. "Have you met my mother? Try refusing her. It's like running into the invisible brick wall. She can't be knocked down."
+
+When James was done toweling off, he noticed that Reza, in typical ADD mode, had left his tennis shoes in the bathroom. Throw the dog a bone, he told himself. He carried the walked-down-at-the-heel Vans back to their room and put them under Reza's bed without saying, "don't say I never did anything for you."
+
+And because he didn't say that, it felt natural not to call him Apu either.
+
+> Baby steps.

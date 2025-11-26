@@ -1,0 +1,22 @@
+---
+uid: 01KAGW88FC2Y89VCRPA46P98QB
+project: you-da-hoe
+source_file: 010309 ElkthroughJames.docx
+converted_date: '2025-11-24T12:23:12.235166'
+wordcount: 786
+version: 1
+---
+
+010309 Elk (James P.O. V.)
+
+The trail rose gently for a mile, then got steeper in a hurry. James is glad to stretch his legs on something other than a treadmill in an unheated barn. If he ever makes it out of Intensive to Transition, he can play basketball again and he wants to be in shape. Will the move to Transition be like moving from one circle of hell to the next? At night, he's been working his way through Healing House's rag-tag library to combat the mind-numbing boredom. He's in the middle of *The Inferno*, not that he'd ever let on to his parents who have given up on the idea that James will ever be interested in anything but X --Box.
+
+It quieted down in a hurry once the going got harder. Leia lagged several people behind him in a snit. She was mad about getting a warning in the car, even madder at James because he'd been wrestling her hand away from his crotch, which is how they got caught. James would have given her a black mark himself. Reaching down his pants in plain sight was idiotic. Even demeaning, like he was a piece of meat. He'd been happy to be the meat when she first came on to him, but now James feels increasingly wary. The incident in the bathtub, when Darlene came in to pee, would have gotten both of them sent to Stabilization, a medicated gulag somewhere even deeper in the hinterlands of Idaho than Healing House. James isn't interested in moving lower on Inner Horizons circles of hell. Intensive already ranks right up there with Paolo and Francesca's burning pools.
+
+It isn't that he doesn't enjoy Leia's blow jobs, or the novelty of sex in the men's bathroom on campus, but he's been getting the feeling lately that Leia's motivations have more to do with risk than getting either of them off. The new girl, Rachel, tramped steadily behind behind him. There was a big debate among the staff about whether she should be allowed to come on the hike, but she'd checked out okay at the hospital. She must be in pretty good shape. She was keeping up with him and they were way up ahead of the pack. Angela --Old-Girl was a few steps behind Rachel, but she didn't count because Angela spent hours on the treadmill every day and James was always having to trade her any allowance money he got so she'd let him have his forty-five minutes on the tread. Five dollars! What trouble can you get in with five bucks? Sam, his dealer, told him one time about how nickel sags used to cost five bucks, but that must have been back in the days of the dinosaurs.
+
+The only sound: the schuss-swish of the snowshoes. Giant snow shrouded pines pinched off the dim sun turning the light on the trail blue. It wasn't that cold \-- not for Idaho --maybe twenty-five degrees? Rachel stepped on the back of his snowshoe and he almost fell. "Sorry!" she said. James kneeled to reorient his snowshoe and tighten the strap. "It's okay, I was lollygagging."
+
+"Maybe we should wait for the others?" Rachel's tone was tentative, like she didn't have the right to make a suggestion. She was still in the honeymoon phase with Inner Horizon's rules, worrying about the stay-together rule Josh lectured them about at the trailhead. Angela passed them, stepping out of the trail and skirting them, without a word. So much for waiting, James thought. "It' s okay. As long as we three stay together."
+
+He fell in behind Angela. They must be pretty far ahead of the pack. The stillness of the wilderness was startling. No foot tracks---just the soft skitter pads of some four footed creature. A fox? James would like to see a fox. Not many wild animals to see in in Chicago. What he'd really like to see is a wolf. He'd settle for a moose, something big. Majestic. If he saw a moose, he'd have something safe to talk about with Dad and Dr. Mom on the weekly family therapy call. Family torture call, he thinks of it. Why don't his parents just give it up and accept that he's a loser? Not everybody can be like Susan, his sister, with A's on every report card, elected President of the Student Body, accepted by Yale *and* Princeton which took a month of agonizing over while James sat at the dining room table hoping his report card hadn't arrived. He checked the mail faithfully the minute he got home but once he started coming home drunk or stoned, who knows what fell through the cracks.
